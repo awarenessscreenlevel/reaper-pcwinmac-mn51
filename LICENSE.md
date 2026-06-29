@@ -1,4 +1,4 @@
-# 
+# Exclusivo Reaper efeitos para Mac OS | Atualizado Reaper efeitos para PC Windows. Com remapeamento de tempo e supressão de ruído — otimizado para máximo desempenho em cada plataforma.
 
 
 
